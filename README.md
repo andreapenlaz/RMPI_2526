@@ -2,7 +2,4 @@
 Práctica RMPI 2526
 Hola
 Que tal
-hsasj
-azscjncjz
-sdzfvdsss
-skiz
+vdgz
